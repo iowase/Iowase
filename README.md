@@ -9,7 +9,7 @@
 
 ![gif](https://i.pinimg.com/736x/4d/d5/e8/4dd5e89cefadc123007c6eda459f6062.jpg)
 
-# $${\color{#ff0006}One must confess one’s name is Red, and I do believe I shall now take my leave.}$$ 
+# $${\color{#8066b8}One}$$ {\color{#8066b8}Must}$$ {\color{#8066b8}Confess}$$ {\color{#8066b8}One's}$$ {\color{#8066b8}name}$$ {\color{#8066b8}is}$$ {\color{#8066b8}Red,}$$ {\color{#8066b8}and}$$ {\color{#8066b8}I}$$ {\color{#8066b8}Do}$$ {\color{#8066b8}believe}$$ {\color{#8066b8}I}$$ {\color{#8066b8}shall}$$ {\color{#8066b8}now}$$ {\color{#8066b8}take}$$ {\color{#8066b8}my}$$ {\color{#8066b8}leave.}$$
 
 "I shall now show my utter disgust and anger with you through the piano. I assume you get the idea."
 
